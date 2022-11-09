@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @NayutaNick
+- 👀 I’m interested in fingerstyle guitar and social psychology
+- 🌱 I’m currently learning international economic and trade
+- 📫 Contact me at zzliurenxiang@icloud.com
